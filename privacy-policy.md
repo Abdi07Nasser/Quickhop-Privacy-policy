@@ -1,6 +1,6 @@
 Notre politique de confidentialité
 
-Cette politique explique comment le site Web Foodhop et les applications connexes collecte, utilise, partage et protège les informations personnelles que nous collectons via ce site ou différents canaux. Foodhop a créé le site pour relier les utilisateurs qui ont besoin d'aliments ou d'articles d'épicerie à expédier ou à livrer par les nos livreurs des restaurants ou magasins à l'endroit souhaité. Cette politique s'applique également à toutes les applications mobiles que nous mettons en public  pour être utilisées avec nos services sur le Site.Veuillez lire ci-dessous pour en savoir plus sur nos politiques d'information. En utilisant ce site, vous acceptez ces politiques.
+Cette politique explique comment le site Web Quickhop et les applications connexes collecte, utilise, partage et protège les informations personnelles que nous collectons via ce site ou différents canaux. Quickhop a créé le site pour relier les utilisateurs qui ont besoin d'aliments ou d'articles d'épicerie à expédier ou à livrer par les nos livreurs des restaurants ou magasins à l'endroit souhaité. Cette politique s'applique également à toutes les applications mobiles que nous mettons en public  pour être utilisées avec nos services sur le Site.Veuillez lire ci-dessous pour en savoir plus sur nos politiques d'information. En utilisant ce site, vous acceptez ces politiques.
 
 Comment les informations sont collectées
 
